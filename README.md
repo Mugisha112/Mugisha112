@@ -14,7 +14,7 @@
 
 - 📄 Know about my experiences [https://mugisha112.github.io/](https://mugisha112.github.io/)
 
-- ⚡ Fun fact **I love travelling, watching football, learning and networking with like minded people.**
+- ⚡ Fun fact **I love travelling, watching football, learning and networking with like minded people. I am fascinated by the mind so I enjoy reading positve growth mindset books, brain coaching and sharing my knowldge. Books; Think and Grow Rich, How to own your mind, Limitless, Mindset, The laws of success**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
